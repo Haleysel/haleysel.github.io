@@ -16,4 +16,4 @@ What _YOU_ need to do:
 * Take to social media, to further spread awareness to those all around the world
 * Sign petitions 
 * Write to congress and local representatives to demand that they stand with you and reproductive rights
-* Donate to organizations such as Planned Parenthood, ACLU, or other organizations that are joining the fight for our rights to our body. 
+* Donate to organizations such as Planned Parenthood, ACLU, or other organizations that are joining the fight for reproductive rights. 
